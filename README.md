@@ -1,5 +1,7 @@
 **🌟 Welcome to the Starknet Token Strk Revolution! 🚀
 
+Live demo Visit our website at https://straknet.vercel.app/ 
+
 Are you ready to step into the future of decentralized AI with the power of $STRK? Look no further because our cutting-edge platform is here to redefine the way we interact with artificial intelligence. With Starknet Token Strk, you can unlock a world of possibilities and be at the forefront of technological innovation.
 
 But first, let's check your eligibility to claim $STRK. Connect your wallet to our platform and see if you're eligible to receive your share of this groundbreaking token. Don't miss out on this opportunity to be a part of the Starknet Token Strk community!
